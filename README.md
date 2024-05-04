@@ -33,12 +33,15 @@ While the benefits of working with a digital marketing company are obvious, sele
 
 By carefully evaluating these qualities, you can identify a digital marketing partner that will be a great asset on your route to attaining long-term business growth in the digital age.
 
-By Tech Metronix
+By 𝐓𝐞𝐜𝐡 𝐌𝐞𝐭𝐫𝐨𝐧𝐢𝐱
 
-𝐕𝐢𝐬𝐢𝐭 𝐨𝐮𝐫 𝐖𝐞𝐛𝐬𝐢𝐭𝐞 𝐟𝐨𝐫 𝐦𝐨𝐫𝐞 𝐝𝐞𝐭𝐚𝐢𝐥𝐬: https://www.techmetronix.com/about-us/
+𝐂𝐨𝐧𝐭𝐚𝐜𝐭 𝐮𝐬- +91-9717988283
 
-𝐂𝐨𝐧𝐭𝐚𝐜𝐭 𝐮𝐬: +91-9717988283
+𝐌𝐚𝐢𝐥 𝐮𝐬- hello@techmetronix.com
 
+𝐖𝐞𝐛- www.techmetronix.com
 
+𝐀𝐝𝐝- Unit 943, Tower B3, Spaze i-Tech Park, SPAZE ITECH PARK,  
+     Sector 49, Gurugram, Haryana 122018
 
 
